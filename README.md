@@ -1,4 +1,4 @@
-# mridinimanivannan
+# About Me
 
 Hey there! I'm Mridini, welcome to my portfolio!
 
